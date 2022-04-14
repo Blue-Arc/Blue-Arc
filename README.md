@@ -20,7 +20,7 @@
 
 + :construction_worker:  现状
 
-  [**湘潭大学**](https://www.nudt.edu.cn/) 就读
+  [**湘潭大学**](https://www.xtu.edu.cn/) 就读
 
 + :blush: 博客
 
