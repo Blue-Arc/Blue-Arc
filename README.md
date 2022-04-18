@@ -34,7 +34,7 @@
 
 :zap: **QQ**: 1321584076 <img align="right" src="https://s2.loli.net/2022/04/13/7ilrkpBDc4H3ZNU.jpg" width="20%">
 
-:love_letter: Email: Basarker@protonmail.com
+:love_letter: Email: 1321584076@qq.com
 
 > 添加好友请备注信息
 
